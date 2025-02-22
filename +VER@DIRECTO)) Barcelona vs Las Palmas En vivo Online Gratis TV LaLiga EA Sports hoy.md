@@ -1,28 +1,51 @@
-Barcelona vs Las Palmas en vivo online gratis fecha del partido horarios y canales de transmisión
-Ver Barcelona vs Las Palmas EN VIVO sigue el partido en el estadio Estadio de Gran Canaria por la Jornada 25 de LaLiga
+Las Palmas vs Barcelona, La Liga en vivo hoy: formaciones y última hora del partido
 
-Barcelona vs Las Palmas EN VIVO vía ESPN juegan en Gran Canaria por la fecha 25 de LaLiga
-Barcelona vs Las Palmas EN VIVO sigue la transmisión minuto a minuto del encuentro por la fecha 25 de LaLiga
+La UD Las Palmas recibe al FC Barcelona este sábado en partido de la jornada 25 de LaLiga EA Sports. El encuentro, que cierra la jornada del sábado al disputarse a partir de las 21:00 horas peninsulares, te lo contamos en vivo y minuto a minuto en RTVE.es debajo de estas líneas.
 
-ESPN EN VIVO U D Las Palmas - Barça GRATIS HOY por la Liga Española ¿Cómo ver ONLINE?
-Ver ESPN EN VIVO HOY para seguir Las Palmas vs Barcelona aquí sabrás dónde mirar ESPN por TV y streaming por la fecha 25 de LaLiga EA
 
-FC Barcelona - Rayo Vallecano (1-0) resumen del partido por la jornada 24 de LaLiga
-El partido entre FC Barcelona vs Rayo Vallecano se jugó este 17 de febrero por la jornada 24 de LaLiga EA Sports 2024/25 desde el Estadio
 
-Ver EN VIVO ONLINE CE Europa vs Las Palmas Copa del Rey 2024-25 Dónde ver TV canal y Streaming
-Te contamos dónde ver en directo online el CE Europa vs Las Palmas de la Copa del Rey 2024-2025 Canal de TV y streaming en vivo
+El equipo azulgrana saldrá inicialmente en el Estadio de Gran Canaria con Szczesny; Koundé, Eric García, Cubarsí, Balde; Casadó, Fermín, Pedri; Lamine Yamal, Raphinha y Lewandowski.
 
-Real Madrid – Las Palmas horario hora y dónde ver gratis en directo el partido de Liga hoy
-Éste es el horario y el canal de televisión para ver en directo el Real Madrid - Las Palmas de la jornada 20 de Liga
 
-Partidos de hoy sábado 22 de febrero de 2025 programación de televisión horarios y dónde ver fútbol en vivo
-Partidos de hoy sábado 22 de febrero de 2025 revisa la programación completa de todos los partidos que se juegan hoy
 
-Real Madrid vs Las Palmas por LaLiga resultado resumen y goles
-Real Madrid tomó la punta de LaLiga EA Sports tras imponerse por 4-1 a Las Palmas en el estadio Santiago Bernabéu
+La UD Las Palmas formará de entrada con Cillessen; Viti, Álex Suárez, Mika Mármol, Álex Muñoz; Essugo, Bajcetic; Sandro, Javi Muñoz, Moleiro; y McBurnie
 
-Ver EN VIVO ONLINE Elche vs Las Palmas Copa del Rey 2024-25 Dónde ver TV canal y Streaming
-Te contamos dónde ver en directo online el Elche vs Las Palmas de los dieciseisavos de final de la Copa del Rey 2024-2025 Canal de TV
 
-El Real Madrid empata ante la UD Las Palmas (1-1) por LaLiga EA Sports
+
+En directo Las Palmas vs Barcelona | LaLiga
+
+El Barça reestrena liderato, empatado a puntos con el Real Madrid, tras la fructífera jornada 24, en la que culminó una remontada en la tabla de siete puntos de desventaja. Ahora toca defenderlo en un campo que le es habitualmente propicio y donde lleva ocho visitas seguidas puntuando. No obstante, en el recuerdo está el partido de la primera vuelta en Montjuic, donde Las Palmas dio la sorpresa frente a los de Hansi Flick. De ganar, sería la primera vez en la historia en que el conjunto insular hace pleno en la misma temporada frente a los culés. Y desde 1969 no gana dos partidos seguidos frente al Barça, aun siendo en distintas temporadas.
+
+
+
+Horario del partido Las Palmas - Barcelona
+
+
+
+Detalles del evento:
+
+
+
+NOME: Las Palmas - Barcelona
+
+
+
+DATA: 22 feb 2025
+
+
+
+HORA: 20:00 UTC
+
+
+
+SEDE: Gran Canaria, Las Palmas de Gran Canaria, Spain
+
+
+
+Compartir en Twitter
+
+El Barcelona recuperó el liderato de LaLiga y no quiere soltarlo, motivo por el cual este sábado buscará la victoria en casa de Las Palmas por la Jornada 25. El duelo se vivirá en el Estadio de Gran Canaria.
+
+
+
+Las Palmas no han tenido la mejor de las temporadas y se encuentran luchando por su permanencia, destacando que al inicio de esta fecha están apenas un lugar arriba de la zona de descenso y por diferencia de goles, por lo que necesitan sumar en condición de local. Mientras que el cuadro culé vino de una desventaja mayor a los 7 puntos y ha logrado rebasar al Real Madrid y Atlético de Madrid, por lo que quiere conservar la cima y, para ello, necesita del triunfo.
