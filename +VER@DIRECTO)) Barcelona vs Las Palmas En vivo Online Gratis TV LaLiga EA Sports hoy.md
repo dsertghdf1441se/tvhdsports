@@ -1,6 +1,10 @@
 Las Palmas vs Barcelona, La Liga en vivo hoy: formaciones y última hora del partido
 
-La UD Las Palmas recibe al FC Barcelona este sábado en partido de la jornada 25 de LaLiga EA Sports. El encuentro, que cierra la jornada del sábado al disputarse a partir de las 21:00 horas peninsulares, te lo contamos en vivo y minuto a minuto en RTVE.es debajo de estas líneas.
+📺📱👉◄◄🔴  https://viralleakedvideo.com/La-Liga/
+
+📺📱👉◄◄🔴  https://viralleakedvideo.com/La-Liga/
+
+📺📱👉◄◄🔴  https://viralleakedvideo.com/La-Liga/
 
 
 
